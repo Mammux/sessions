@@ -2,6 +2,10 @@
 
 Spillere: Dan (Eric), Xavez (Flemming), Ilnan (Håkon) og Galem (Jørn)
 
+<img src="images/dan_mini.png" alt="Dan"/> <img src="images/xavez_mini.png" alt="Dan"/>
+
+<img src="images/ilnan_mini.png" alt="Dan"/> <img src="images/galem_mini.png" alt="Dan"/>
+
 Dere var tre uker inn i ekspedisjonen, da dere tydelig var på vei inn i en storm. Kapteinen samlet alle til en liten motiverende tale, men raskt ble været så dårlig, at det mest handlet om å holde seg i live. Seilene måtte reves og egne stormseil heises opp. Under dekk var det forsyninger og kanoner som hadde slitt seg. 
 
 Dan og Xavez fikk kontroll på forsyninene, inkludert en ku som løp omkring på nederste dekk. Ilnan og Galnen fikk heist stormseilene.  Etter hvert knakk likevel hovedmasten, og traff kapteinen, som ble hardt skadet. Selve skipsrattet ble også ødelagt, så det ble vanskelig å styre skipet.
