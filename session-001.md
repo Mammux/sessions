@@ -22,4 +22,4 @@ Dere forsøkte å komme dere innover mot fast grunn, men ble angrepet av noen f�
 
 Inne på selve stranden så dere mer av landskapet. Det var en lang sandstrand, palmer og klipper. I tillegg til de tre offiserene, møtte dere de fire andre sjøfolkene som hadde overlevd.
 
-<img src="images/beach_mini.png" alt="Beach"/> <img src="images/beach_mini.png" alt="The Narrow Beach"/>
+<img src="images/beach_mini.png" alt="Beach"/> <img src="images/palms_mini.png" alt="The Narrow Beach"/>
