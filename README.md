@@ -1,1 +1,1 @@
-[[session-001]]
+ - [Første spillomgang](./session-001)
