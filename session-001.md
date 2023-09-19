@@ -17,3 +17,5 @@ Skipet kom inn i et område med mindre vind og bedre sikt, men med enda større 
 Dere forsøkte å komme dere innover mot fast grunn, men ble angrepet av noen fæle monstre, som Galem senere har kalt for gremlinger. Noen var piggete og lå på sandbunnen. Andre kom svømmende og brukte noen merkelige krefter for å forsøke å drukne Galem. Til slutt klarte dere å drepe alle, men dere så at det kom en hel skokk av lignende skapninger fra nord og plyndret skipsvraket.
 
 Inne på selve stranden så dere mer av landskapet. Det var en lang sandstrand, palmer og klipper. I tillegg til de tre offiserene, møtte dere de fire andre sjøfolkene som hadde overlevd.
+
+ <img src="images/beach_mini.png" alt="The Narrow Beach"/>
