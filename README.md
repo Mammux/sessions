@@ -1,1 +1,1 @@
- - [Første spilleomgang: fra båten til stranden](/session-001)
+ - [Første spilleomgang: fra båten til stranden](/session-001.md)
