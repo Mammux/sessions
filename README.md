@@ -1,1 +1,2 @@
  - [Første spilleomgang: fra båten til stranden](./session-001.md)
+ - [Andre spilleomgang: utforskning og en rar leopardmann](./session-002.md)
