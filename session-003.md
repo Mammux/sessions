@@ -1,8 +1,8 @@
 # Tredje spilleomgang: To reiser ut i ørkenen
 
-Dere slåss etter beste evne med leopardmannen og de vandrende skjelettene. Mens dere var opptatt med skjelettene, hentet han et nytt 
-skjelett med mye mundur opp av bakken, men det virket som det kom som en overraskelse for ham at dette skjelettet raskt tok livet av ham. 
-Deretter forsvant også skjelettet ned i bakken. 
+Dere slåss etter beste evne mot mannen med fjærpryden og de vandrende skjelettene. Mens dere var opptatt med skjelettene, hentet han et 
+nytt skjelett med mye mundur (kanskje det hadde vært en dame?) opp av bakken, men det virket som det kom som en overraskelse for ham at 
+dette skjelettet angrep ham og raskt tok livet av ham. Deretter forsvant også skjelettet ned i bakken. 
 
 Leopardmannen kom løpende for å hjelpe, men da hadde dere tatt dere av alle de gjenværende skjelettene. Han tok dere med inn igjen i 
 kammeret, og pekte på et steinhelle i gulvet. 
