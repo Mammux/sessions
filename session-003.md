@@ -5,7 +5,11 @@ skjelett med mye mundur opp av bakken, men det virket
 som det kom som en overraskelse for ham at dette skjelettet raskt tok livet av ham. Deretter forsvant også skjelettet ned i bakken. 
 
 Leopardmannen kom løpende for å hjelpe, men da hadde dere tatt dere av alle de gjenværende skjelettene. Han tok dere med inn igjen i 
-kammeret, og pekte på et steinhelle i gulvet. Deretter
+kammeret, og pekte på et steinhelle i gulvet. 
+
+<img src="images/workshop_mini.png" alt="The Workshop"/>
+
+Deretter
 ble dere dradd tilbake til deres egne kropper i deres egen virkelighet. Krystall-sarkofagene hadde mistet lyset sitt, og virket inaktive.
 
 Dere undersøkte fort steinhellen på gulvet, og fant der en tegning av et litt merkelig våpen med et intrikat symbol på. 
