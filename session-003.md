@@ -24,6 +24,10 @@ hånden hans da han jobbet med det. Våpenet føltes bedre etter det, men ingen 
 Om natten hadde Galem en drøm, og om morgenen hadde sarkofagene begynt å lyse igjen. Dere dro til leopardmennen, og klarte 
 etterhvert å forklare ham hva symbolene hadde sagt. Han ga
 dere vann og noe utstyr, og et kart, og dere reiste ut i ørkenen. Etter tre dagers reise, kom dere til en slags obelisk med mange
-tegn på. En mann med hvit kjortel og mange tatoveringer stod der, og forsøkte å kopiere av symbolene. Da han så dere ble han sint, og begynte å bruke
+tegn på. En mann med hvit kjortel og mange tatoveringer stod der, og forsøkte å kopiere av symbolene. 
+
+<img src="images/pillar_mini.png" alt="The Pillar"/>
+
+Da han så dere ble han sint, og begynte å bruke
 noen magiske krefter til å skade dere. Dere klarte til slutt å drepe ham, og ødelegge symbolene på obelisken. Dere ble trukket tilbake
 til virkeligheten, hvor det var nye symboler på steintavlen (CLIFFHANGER!).
