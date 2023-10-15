@@ -2,6 +2,8 @@
 
 Dere overnattet på stranden. Neste dag fant dere noen vrakrester i sjøen, inkludert et seil og Galem sitt trekkspill. Deretter dro dere innover i landet, og fant et område med jungel hvor dere ble overfalt av en diger tusenbein. Den forgiftet Ilnan, som nesten døde. Dan forsøkte å hjelpe, men det var litt usikkert om det var mer til hjelp eller mer til skade.
 
+<img src="images/centipede_mini.png" alt="Giant Centipede"/>
+
 Innenfor jungelen, fant dere noen smale daler, med små bekker. 
 
 <img src="images/canyon_mini.png" alt="The Canyon"/>
