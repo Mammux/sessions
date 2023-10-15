@@ -35,4 +35,4 @@ tegn på. En mann med hvit kjortel og mange tatoveringer stod der, og forsøkte 
 <img src="images/pillar_mini.png" alt="The Pillar"/> <img src="images/sorcerer_mini.png" alt="The Sorcerer"/>
 
 Da han så dere ble han sint, og begynte å bruke noen magiske krefter til å skade dere. Dere klarte til slutt å drepe ham, og ødelegge 
-symbolene på obelisken. Dere ble trukket tilbake til virkeligheten, hvor det var nye symboler på steintavlen (CLIFFHANGER!).
+symbolene på obelisken. Dere ble trukket tilbake til virkeligheten, hvor det var nye symboler på steintavlen.
