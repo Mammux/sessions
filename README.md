@@ -1,3 +1,4 @@
  - [Første spilleomgang: fra båten til stranden](./session-001.md)
  - [Andre spilleomgang: utforskning og en rar leopardmann](./session-002.md)
  - [Tredje spilleomgang: to reiser ut i ørkenen](./session-003.md)
+ - [Fjerde spilleomgang: angrep på gremlingene](./session-004.md)
