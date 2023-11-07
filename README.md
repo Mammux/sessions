@@ -2,3 +2,4 @@
  - [Andre spilleomgang: utforskning og en rar leopardmann](./session-002.md)
  - [Tredje spilleomgang: to reiser ut i ørkenen](./session-003.md)
  - [Fjerde spilleomgang: angrep på gremlingene](./session-004.md)
+ - [Femte spilleomgang: full fight i kjelleren](./session-005.md)
