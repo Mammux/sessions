@@ -18,7 +18,13 @@ Dere kom fram til den merkelige broen. Den krysset dalen som dere gikk i. Oppå 
 
 ## Dag 17
 
-Dere sov godt og våknet til soloppgangen. Dere jakter på noen langhåree kaniner. Etter hvert kom dere inn i skogen og fant et gigantiske treet som var på kartet. Etter at dere hadde slått leir noen timer unna treet, dukket det opp tre svære gorillaer. De slo ut Ignan, men dere klarte å ta dem.
+Dere sov godt og våknet til soloppgangen. Dere jakter på noen langhåree kaniner. Etter hvert kom dere inn i skogen og fant et gigantiske treet som var på kartet. Etter at dere hadde slått leir noen timer unna treet, dukket det opp tre svære gorillaer. De slo ut Ignan, men dere klarte å ta dem. Deretter overnattet dere i jungelen. Det var fortsatt gorilla-lyder, men ikke i nærheten av dere. 
+
+## Dag 18
+
+Dere kom fram til steinhusene ute blandt åsene. De fleste var ødelagt, men i ett hus var det to rampete ogrer. De tok nesten livet av dere, og lo godt. Rapieren og kniven til Dan ble liggende igjen utenfor ogre-huset.
+
+
 
 
 
