@@ -3,3 +3,4 @@
  - [Tredje spilleomgang: to reiser ut i ørkenen](./session-003.md)
  - [Fjerde spilleomgang: angrep på gremlingene](./session-004.md)
  - [Femte spilleomgang: full fight i kjelleren](./session-005.md)
+ - [Sjette spilleomgang: en lang reise mot en spiss stein](./session-006.md)
