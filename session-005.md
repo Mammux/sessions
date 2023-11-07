@@ -6,5 +6,5 @@ Dere slåss lenge i kjelleren mot tre kultister og en besatt (udød?). Galem ble
 
 Da dere kom tilbake til virkeligheten var det en del flere ruiner enn før. Sarkofagene var borte, men nytt kart på steintavlen. 
 
-15. dag planla dere å sanke ressurser, for å kunne reise etter kartets beskrivelse.
+Den 15. dagen planla dere å sanke ressurser, for å kunne reise etter kartets beskrivelse.
 
