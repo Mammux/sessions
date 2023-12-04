@@ -1,5 +1,7 @@
 # Sjette spillomgang
 
+<img src="images/worldmap_mini.png" alt="Reisen så langt"/>
+
 ## Dag 15 (fortsatt fra forrige spilleomgang)
 
 Galem fikk en stor fisk i sumpen. Alle fikk medisinsk hjelp av Dan og kom seg litt. Dere satt i nærheten av den gamle statuen til dere kom dere ordentlig på beina igjen. Etterpå gikk dere ned på stranden, og plukket noen kokosnøtter. Galem laget en veldig fin ryggsekk av noen palmeblader. Dere gikk derettert tilbake til leiren med mer oppfyringsved, og snakket med de andre i mannskapet. Alle ble enige om å bryte opp leiren og følge kartet som var dukket opp på steintavlen. 
@@ -22,4 +24,4 @@ Dere sov godt og våknet til soloppgangen. Noen av dere jaktet på noen langhår
 
 Dere kom fram til steinhusene ute blandt åsene. I området lå det noen skrotter av lalamaer. Det var både bite- og kloremerker på dem, og det virket som de delvis var spist opp. De fleste husene var ødelagt, men i ett hus var det to rampete ogrer. De tok nesten livet av dere, og lo godt. Rapieren og kniven til Dan ble liggende igjen utenfor ogre-huset. Lenger nord kunne dere se et slags naturlig steintårn, som dere tenkte kunne være destinasjonen deres.
 
-<img src="images/worldmap_mini.png" alt="Reisen så langt"/>
+<img src="images/spike_mini.png" alt="Steintårnet"/>
