@@ -20,7 +20,8 @@ Dere sov godt og våknet til soloppgangen. Noen av dere jaktet på noen langhår
 
 ## Dag 18
 
-<img src="images/rockhouse_mini.png" alt="Steinhusene"/>
+<img src="images/rockhouse_mini.png" alt="Steinhusene"/> <img src="images/ogre_mini.png" alt="Ogre"/>
+
 
 Dere kom fram til steinhusene ute blandt åsene. I området lå det noen skrotter av lalamaer. Det var både bite- og kloremerker på dem, og det virket som de delvis var spist opp. De fleste husene var ødelagt, men i ett hus var det to rampete ogrer. De tok nesten livet av dere, og lo godt. Rapieren og kniven til Dan ble liggende igjen utenfor ogre-huset. Lenger nord kunne dere se et slags naturlig steintårn, som dere tenkte kunne være destinasjonen deres.
 
