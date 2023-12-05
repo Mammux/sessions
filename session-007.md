@@ -10,4 +10,4 @@ Dere våknet i den midlertidige leiren. Deretter gikk dere nordover på vestside
 
 ## Dag 20
 
-Dere dro tilbake til ogrenes hus, og la dere i skjul ca. 200 fot unna inngangen.
+Dere dro tilbake til ogrenes hus, og la dere i skjul ca. 200 fot unna inngangen, på ettermiddagen. 
