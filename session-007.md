@@ -6,8 +6,8 @@ Dere klarte å krabbe tilbake til de andre sjøfolkene, som hadde laget en liten
 
 ## Neste dag (dag 19?)
 
-Dere våknet i den midlertidige leiren. Deretter gikk dere nordover på vestsiden av ogre-huset. Dere så at det kom en ogre til inn til, så da var de tre stykker. Deretter gikk dere til spiken. Møtte geitedamen, ble vist inskribsjonen. Fikk i oppdrag å drepe (minst) en ogre. Hvilte med de andre.
+Dere våknet i den midlertidige leiren. Deretter gikk dere nordover på vestsiden av ogre-huset. Dere så at det kom en ogre til inn til, så da var de tre stykker. Deretter gikk dere til spiken. Møtte geitedamen, ble vist inskripsjonen, med fire mennesker og et symbol. Symbolet var leopardmannens symbol, som også finnes på Galem sin kårde. Hun ble veldig entuastisk da hun så det. Det var litt vanskelig å forstå henne, men det virket som dere fikk i oppdrag å drepe (minst) en ogre. Dere hvilte etterpå i leiren med de andre.
 
 ## Dag 20
 
-Dere dro tilbake til ogrenes hus, og la dere i skjul ca. 200 fot unna inngangen, på ettermiddagen. 
+Dere dro tilbake til ogrenes hus, og la dere i skjul ca. 200 fot unna inngangen, på ettermiddagen. Utpå kvelden forlot den ene ogren de to andre, og dro sørover. Dere overfalt henne og drepte henne. Derette dro dere ikke bare med dere hodet, men hele kroppen, tilbake til geitemennene. De var veldig fornøyde, og det virket som de ville vise dere veien oppover til neste etasje. Hele gjengen deres fikk også overnatte i området til geitemennene.
