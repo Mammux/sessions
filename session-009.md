@@ -44,4 +44,5 @@ Mannen i midten var tydelig leopardmannen fra krystallkammeret. De to andre var 
 at geitedamen fra sykestuen (Yacuruna) la friske blomster foran han til venstre. Han til høyre så nærmest ut som en etterligning av leopardmannen. 
 Dere spurte Yacuruna om mannen til venstre, og hun pekte mot skogen igjen. Dere dro tilbake dit og havnet i kamp med ennå en voldsom slyngplante
 som omfavnet en nedgravd steinkiste. Til slutt beseiret dere den, men Dan overlevde bare etter at Ilnan hadde fått et øyeblikks inspirasjon
-fra en gammel sjel akkurat i det øyeblikket Dan holdt på å trekke sitt siste sukk.
+fra en gammel sjel akkurat i det øyeblikket Dan holdt på å trekke sitt siste sukk. Dere fikk med dere noen blomster fra planten dere hadde
+beseiret, så begynte Galem å åpne lokket på kisten.
