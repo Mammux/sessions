@@ -31,3 +31,15 @@ Neste dag var pasienten blitt litt piggere. Yacuruna lærte dere sangen sin:
 Så viste hun dere opp til neste etasje.
 
 <img src="images/spike_3rd_mini.png" alt="Fjerde etasje"/>
+
+Der møtte dere geitemannen Sicania. Han tok dere med inn. Dere gikk først forbi en utedo/innedo, hvor det luktet litt sur røyk. Deretter
+en snekkerbu, hvor Galem tok med seg en øks. Så kom dere inn i et stort rom med noe som så ut som et basseng. Der hadde geitemennene frukt.
+Lenger inne kom dere til et rom hvor det var lysende krystaller og en intrikat inskribsjon på veggen.
+
+<img src="images/trio_mini.png" alt="Inskribsjon av tre figurer"/>
+
+Mannen i midten var tydelig leopardmannen fra krystallkammeret. De to andre var vanskeligere å identifisere, men dere skjønte etterhvert
+at geitedamen fra sykestuen (Yacuruna) la friske blomster foran han til venstre. Han til høyre så nærmest ut som en etterligning av leopardmannen. 
+Dere spurte Yacuruna om mannen til venstre, og hun pekte mot skogen igjen. Dere dro tilbake dit og havnet i kamp med ennå en voldsom slyngplante
+som omfavnet en nedgravd steinkiste. Til slutt beseiret dere den, men Dan overlevde bare etter at Ilian hadde fått et øyeblikks inspirasjon
+fra en gammel sjel akkurat i det øyeblikket Dan holdt på å trekke sitt siste sukk.
