@@ -20,6 +20,8 @@ hvor det var litt kjøligere, og det var mye sopp og slyngplanter rundt nakne tr
 men dere klarte å beseire både den og en blodtørstig busk. Dere fikk også med dere noen bær fra disse planteskapningene, og
 en sopp som dere mente måtte være riktig.
 
+<img src="images/mushroom_mini.png" alt="Soppskogen"/>
+
 Dere kom dere tilbake til pasienten, og Yacuruna virket godt fornøyd. Dere var skadet og slitne, og overnattet.
 
 ## Dag 23
