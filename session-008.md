@@ -2,7 +2,7 @@
 
 ## Dag 21
 
-<img src="images/goatwoman_mini.png" alt="Geitedame"/>
+<img src="images/goatwoman_mini.png" alt="Icanchu"/>
 
 Geitedamen i første etasje, Icanchu, tok dere til side så ingen andre skulle høre henne, og lærte dere sangen sin:
 
@@ -15,4 +15,6 @@ tettet igjen åpningene så godt dere klarte med steiner og rusk og rask. Kukulk
 
     Ri ab'aj tz'ikin chikoponik, utz'utz' q'ak'aslemi' laj wakami'el chwi'
 
-Deretter lot han dere gå videre til tredje etasje.
+<img src="images/kukulkan_mini.png" alt="Kukulkan"/>
+
+Deretter lot han dere gå videre til tredje etasje, men dere overnattet først hos ham siden dere var ganske skadet.
