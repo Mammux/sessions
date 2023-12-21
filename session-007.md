@@ -10,7 +10,6 @@ Dere våknet i den midlertidige leiren. Deretter gikk dere nordover på vestside
 
 ## Dag 20
 
-![Ogre]()
 <img src="images/ogre_mini.png" alt="Ogre"/>
 
 Dere dro tilbake til ogrenes hus, og la dere i skjul ca. 200 fot unna inngangen, på ettermiddagen. Utpå kvelden forlot den ene ogren de to andre, og dro sørover. Dere overfalt henne og drepte henne. Derette dro Xavez ikke bare med seg hodet, men hele kroppen, tilbake til geitemennene. De var veldig fornøyde, og det virket som de ville vise dere veien oppover til neste etasje. Hele gjengen deres fikk også overnatte i området til geitemennene.
