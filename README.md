@@ -6,4 +6,4 @@
  - [Sjette spilleomgang: en lang reise mot en spiss stein](./session-006.md)
  - [Syvende spilleomgang: oppdrag fra geitedamen](./session-007.md)
  - [Åttende spilleomgang: andre etasje](./session-008.md)
- - [Niende spilleomgang: andre etasje](./session-009.md)
+ - [Niende spilleomgang: tredje og fjerde etasje](./session-009.md)
