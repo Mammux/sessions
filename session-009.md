@@ -40,6 +40,7 @@ Der møtte dere geitemannen Sicania. Han tok dere med inn. Dere gikk først forb
 en snekkerbu, hvor Galem tok med seg en øks. Så kom dere inn i et stort rom med noe som så ut som et basseng. Der hadde geitemennene frukt.
 Lenger inne kom dere til et rom hvor det var lysende krystaller og en intrikat inskribsjon på veggen.
 
+<img src="images/sicania_mini.png" alt="Sicania"/> 
 <img src="images/trio_mini.png" alt="Inskribsjon av tre figurer"/>
 
 Mannen i midten var tydelig leopardmannen fra krystallkammeret. De to andre var vanskeligere å identifisere, men dere skjønte etterhvert
