@@ -2,9 +2,11 @@
 
 ## Dag 21
 
-<img src="images/goatwoman_mini.png" alt="Icanchu"/>
+<!-- img src="images/goatwoman_mini.png" alt="Icanchu"/ -->
 
 Geitedamen i første etasje, Icanchu, tok dere til side så ingen andre skulle høre henne, og lærte dere sangen sin:
+
+https://github.com/Mammux/sessions/assets/325898/da5798f8-0894-4db8-af9b-45ac12932015
 
     Ix Nimraq chiri' ri u chikoponik, u chitzaqal, tz'ayin, k'ut xkik'otxel
 
