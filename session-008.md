@@ -8,6 +8,10 @@ Geitedamen i første etasje, Icanchu, tok dere til side så ingen andre skulle h
 
 <iframe width="420" height="315" src="https://github.com/Mammux/sessions/assets/325898/da5798f8-0894-4db8-af9b-45ac12932015" frameborder="0" allowfullscreen>&nbsp;</iframe>
 
+<iframe width="420" src="https://github.com/Mammux/sessions/assets/325898/da5798f8-0894-4db8-af9b-45ac12932015" frameborder="0" allowfullscreen>&nbsp;</iframe>
+
+<iframe src="https://github.com/Mammux/sessions/assets/325898/da5798f8-0894-4db8-af9b-45ac12932015" frameborder="0" allowfullscreen>&nbsp;</iframe>
+
     Ix Nimraq chiri' ri u chikoponik, u chitzaqal, tz'ayin, k'ut xkik'otxel
 
 Så viste hun dere veien opp i andre etasje, og introduserte dere for en eldre geitemann. Han het Kukulkan. 
