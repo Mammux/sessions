@@ -28,7 +28,7 @@ Dere kom dere tilbake til pasienten, og Yacuruna virket godt fornøyd. Dere var 
 
 Neste dag var pasienten blitt litt piggere. Yacuruna lærte dere sangen sin:
 
-https://github.com/Mammux/sessions/assets/325898/e3332782-3abe-4734-ae8d-6f58563c21d7
+https://github.com/Mammux/sessions/assets/325898/e16180b8-b91e-4f60-884c-a9ddd9ac0f8b
 
     Ri utzukulil xub'anil, xqaq'oj chiri', ut ch'uti'iq xub'an q'ak'aslemi'
 
