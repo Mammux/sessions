@@ -6,7 +6,7 @@
 
 Geitedamen i første etasje, Icanchu, tok dere til side så ingen andre skulle høre henne, og lærte dere sangen sin:
 
-https://github.com/Mammux/sessions/assets/325898/da5798f8-0894-4db8-af9b-45ac12932015
+<iframe width="420" height="315" src="https://github.com/Mammux/sessions/assets/325898/da5798f8-0894-4db8-af9b-45ac12932015" frameborder="0" allowfullscreen>&nbsp;</iframe>
 
     Ix Nimraq chiri' ri u chikoponik, u chitzaqal, tz'ayin, k'ut xkik'otxel
 
