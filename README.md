@@ -7,3 +7,5 @@
  - [Syvende spilleomgang: oppdrag fra geitedamen](./session-007.md)
  - [Åttende spilleomgang: andre etasje](./session-008.md)
  - [Niende spilleomgang: tredje og fjerde etasje](./session-009.md)
+ - [Tiende spilleomgang: ut i kulden](./session-010.md)
+   
