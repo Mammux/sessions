@@ -32,6 +32,7 @@ som var kommet inn i isen og slapp ut lys fra fortiden. Dere gikk opp på breen 
 fælt frost-troll med en kraftig øks. Det helbredet seg i ett sett, men til slutt fikk dere tent en fakkel og klarte
 etter mye strev å få drept det for godt med et bål bygget med ved fra hytten.
 
-Dere gikk tilbake til hytten og la dere til å sove, men midt på natten våknet dere av breen flyttet på seg. En stor rund
+Dere gikk tilbake til hytten. Dere la merke til en merkelig tegning på veggen som tidligere var skjult av veden.
+Etter hvert la dere dere til å sove, men midt på natten våknet dere av breen flyttet på seg. En stor rund
 åpning hadde dukket opp som gikk inn under isen.
 
