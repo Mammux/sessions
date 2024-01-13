@@ -24,7 +24,7 @@ fra drømmen dere hadde delt. Etter hvert oppdaget dere at det var noen slags kr
 på minutter, og sollyset ble kraftigere. Dere samlet så mye død ved som dere klarte og tok det med tilbake til tårnet.
 En ungdom fra geitemann-stammen hadde set hva dere hadde gjort, og formidlet det til Sicania, som sang sangen sin til dere.
 
-<iframe width="420" src="videos/song-04.mp4" frameborder="0">&nbsp;</iframe>
+<iframe width="420" src="video/song-04.mp4" frameborder="0">&nbsp;</iframe>
 
     Ri utzukul k'ut xub'an q'ak'aslemi', xub'an chik'in, u xub'an k'ut tz'utujil
 
