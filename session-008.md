@@ -19,7 +19,7 @@ i denne etasjen sanket frukt og bær, og forsynte de andre geitemennene. Men de 
 Dere klarte å drepe noen, og fikk tak i to magiske pinner, den ene skadet og den andre intakt. Deretter tente dere et bål for å røyke dem ut, og 
 tettet igjen åpningene så godt dere klarte med steiner og rusk og rask. Kukulkan var godt fornøyd og lærte dere sangen sin:
 
-<iframe width="420" src="https://github.com/Mammux/sessions/assets/325898/42a0c55a-21ef-46ee-bfc9-b8776906318b" frameborder="0">&nbsp;</iframe>
+<iframe width="420" src="videos/song-02.mp4" frameborder="0">&nbsp;</iframe>
 
     Ri ab'aj tz'ikin chikoponik, utz'utz' q'ak'aslemi' laj wakami'el chwi'
 
