@@ -28,7 +28,7 @@ Dere kom dere tilbake til pasienten, og Yacuruna virket godt fornøyd. Dere var 
 
 Neste dag var pasienten blitt litt piggere. Yacuruna lærte dere sangen sin:
 
-<iframe width="420" src="videos/song-03.mp4" frameborder="0">&nbsp;</iframe>
+<iframe width="420" src="video/song-03.mp4" frameborder="0">&nbsp;</iframe>
 
     Ri utzukulil xub'anil, xqaq'oj chiri', ut ch'uti'iq xub'an q'ak'aslemi'
 
