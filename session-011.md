@@ -34,5 +34,11 @@ for å rekke å komme dere ut før isen raste sammen til en slags grov slush.
 
 Solen var allerede på vei opp da dere kom ut, så dere hentet isen dere var bedt om og dro tilbake mot steintårnet. Der fikk dere avlevert isen, som ble brukt
 til å lage en deilig sorbet. Den ble servert i et rituale hvor de to geitemann-ungdommene holdt opp ogre-hodeskaller og sa sine navn for første gang. Dere
-fikk også lære sanglinjen til Sicania. Da dere la dere på kvelden, drømte dere alle om at frostkvinnen fra isbreen stod ved et vakkert kaldt fjelltjern og 
+fikk også lære sanglinjen til Sicania. 
+
+<iframe width="420" src="video/song-05.mp4" frameborder="0">&nbsp;</iframe>
+
+    Ri siba' q'ak'aslemi', chiri', chawisib' ri' xuk'ij laj chiya' xub'an
+
+Da dere la dere på kvelden, drømte dere alle om at frostkvinnen fra isbreen stod ved et vakkert kaldt fjelltjern og 
 så ned på isbreen som var på vei til å smelte. Hun så på dere og bukket, kanskje med respekt eller takknemlighet. Neste dag planla dere å gå videre opp i tårnet.
