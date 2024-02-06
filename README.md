@@ -9,4 +9,5 @@
  - [Niende spilleomgang: tredje og fjerde etasje](./session-009.md)
  - [Tiende spilleomgang: ut i kulden](./session-010.md)
  - [Ellevte spilleomgang: under isen](./session-011.md)
+ - [Tolvte spilleomgang: noen rolige uker](./session-012.md)
    
