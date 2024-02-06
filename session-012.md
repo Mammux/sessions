@@ -22,10 +22,10 @@
 
 |Hvem|Hva|
 |---|---|
-Galem		Jobbe med maleri (fokus på skipene) -> 80% ferdig 6 porsjoner
-Dan		Magic research på spydet -> fant ut av spydet kan fange noe, hadde noe med forferdrene å gjøre
-Xavez		Area Exploration -> oppdaget ogrebyen, med stier og rutiner
-Ilian		Finne ingredienser ->  fant 6 porsjoner
+|Galem	|	Jobbe med maleri (fokus på skipene) -> 80% ferdig 6 porsjoner |
+|Dan	|	Magic research på spydet -> fant ut av spydet kan fange noe, hadde noe med forferdrene å gjøre |
+|Xavez	|	Area Exploration -> oppdaget ogrebyen, med stier og rutiner |
+|Ilian	|	Finne ingredienser ->  fant 6 porsjoner |
 
 ## Uke 4:
 
@@ -77,3 +77,5 @@ Ilian		Finne ingredienser ->  fant 6 porsjoner
 |Hvem|Hva|
 |---|---|
 |Galem	|	Jobbe med maleri|
+
+Dere jobbet videre med maleriene i 6 uker til (totalt 15 uker), og alle hjalp til. Den dagen dere ble ferdige med det tredje og siste bildet, var det blitt dag 129.
