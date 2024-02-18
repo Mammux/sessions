@@ -46,7 +46,7 @@ for å rekke å komme dere ut før isen raste sammen til en slags grov slush.
 
 Solen var allerede på vei opp da dere kom ut, så dere hentet isen dere var bedt om og dro tilbake mot steintårnet. Der fikk dere avlevert isen, som ble brukt
 til å lage en deilig sorbet. Den ble servert i et rituale hvor de to geitemann-ungdommene holdt opp ogre-hodeskaller og sa sine navn for første gang. Dere
-fikk også lære sanglinjen til Sicania. 
+fikk også lære sanglinjen til Intiapa. 
 
 <iframe width="420" src="video/song-05.mp4" frameborder="0">&nbsp;</iframe>
 
