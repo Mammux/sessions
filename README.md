@@ -10,4 +10,5 @@
  - [Tiende spilleomgang: ut i kulden](./session-010.md)
  - [Ellevte spilleomgang: under isen](./session-011.md)
  - [Tolvte spilleomgang: noen rolige uker](./session-012.md)
-   
+ - [Trettende spilleomgang: gravfølge](./session-013.md)
+ - [Fjortende spilleomgang: videre inn i gravkammeret](./session-014.md)
