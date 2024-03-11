@@ -12,3 +12,4 @@
  - [Tolvte spilleomgang: noen rolige uker](./session-012.md)
  - [Trettende spilleomgang: gravfølge](./session-013.md)
  - [Fjortende spilleomgang: videre inn i gravkammeret](./session-014.md)
+ - [Femtende spilleomgang: kampen mot beistet](./session-015.md)
