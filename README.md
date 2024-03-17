@@ -14,4 +14,3 @@
  - [Fjortende spilleomgang: videre inn i gravkammeret](./session-014.md)
  - [Femtende spilleomgang: kampen mot beistet](./session-015.md)
  - [Sekstende spilleomgang: hjelp, vi er på tidsreise (igjen)](./session-016.md)
- - 

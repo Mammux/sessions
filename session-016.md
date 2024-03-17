@@ -19,7 +19,13 @@ delen seg slik at dere kunne se inn i et kammer. Der inne var det en svær kryst
 som gikk fra gulv til tak, og fortsatte oppover helt til toppen av hele spiken. Inne
 i krystallen skimtet dere en drage som beveget seg sakte, og den begynte å snakke til dere!
 
-    Tidens sand renner fort, ennå ankommer dere både sent og tidlig i dens strøm! Nå er øyeblikket til å ruste seg for mørkere tider, enda usett. Mye står til å gjøre, mye burde allerede vært gjort. Min æra ebber ut og har knapt grydd. Leopardmannen, jeg ba ham lede deres vei; hans epoke endte, han forsvinner fra synet. De nærmer seg, som i gamle dager. Dere må både reise tilbake til dem som falmer fra sin tid, og søke ut ham som ennå ikke har sett dagens lys.
+    Tidens sand renner fort, ennå ankommer dere både sent og tidlig i dens strøm! 
+    Nå er øyeblikket til å ruste seg for mørkere tider, enda usett. 
+    Mye står til å gjøre, mye burde allerede vært gjort. 
+    Min æra ebber ut og har knapt grydd. 
+    Leopardmannen, jeg ba ham lede deres vei; hans epoke endte, han forsvinner fra synet. 
+    De nærmer seg, som i gamle dager. 
+    Dere må både reise tilbake til dem som falmer fra sin tid, og søke ut ham som ennå ikke har sett dagens lys.
 
 Etter dette, forsvant den opp i den delen av krystallen som ikke var synlig for dere.
 I rommet var det også noen skjeletter, og fire krystallsarkofager, og dere så at det 
