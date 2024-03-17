@@ -18,6 +18,8 @@ Geitemennene fikk begravet den døde gamle geitemannen, og dere dro tilbake til 
 Der fikk dere en ny linje av sangen av en geitedame som dere tenkte nok var i familie
 med den døde gamle mannen.
 
+# Dag 132
+
 Deretter møtte dere den aller eldste geitemannen av dem alle, og han sendte dere på et siste
 oppdrag men den unge mannen som var så syk da dere først møtte ham. Han tok dere med til
 et slags skipsvrak, hvor et monster av en geiteskapning angrep dere. Det var også sporer

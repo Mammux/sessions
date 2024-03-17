@@ -11,6 +11,8 @@ sin egen skygge. Det var også en rar dame ute i tunnelen, hun rev ned hele take
 
 Dere tok en hvil i leiren, og fikk en god natts søvn.
 
+## Dag 131
+
 I neste områdene, som var geitemennenes gravkammer, møtte dere på to skjeletter til, og en Wight, som ganske raskt
 ble tatt knekken på. Disse rommene var stappfulle av hodeskaller og bein. Det siste rommet var menneskenes gravkammer,
 virket det som. Mange krukker stod der med aske. To brennende hodeskaller angrep dere, og de eksploderte da dere
