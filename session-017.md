@@ -20,7 +20,7 @@ Dere var også ute og snakket med styrmannen, Gerald Clarke. Han hadde fått et 
 
 På ettermiddagen dro dere ut og drepte de to ogrene som hadde gitt dere så mye trøbbel da dere først kom reisende. Det ble etterhvert opplagt for dere at for å redde gutten fra ogrene, måtte dere tilbake i tid.
 
-## Tilbake for å redde gutten
+## Dag 134
 
 Neste dag var det godt med lys i sarkofagene. Da dere kom tilbake til fortiden, var mye som forrige gang, men det var fred mellom menneskene og fuglemennene. Det virket som det hadde gått en del år. Sjefspresten var død, men den kvinnelige presten dere møtte sist tok ordet. Da dere begynte å spørre om gutten og ogrene, fikk dere vite at han het K'inich og var sønnen hennes. Han var født under en solformørkelse, fortalte hun, og var en spesiell gutt. Dere bet dere merke i at hun kalte månen for Nattblomsten.
 
