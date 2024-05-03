@@ -18,6 +18,8 @@ Geitemennene fikk begravet den døde gamle geitemannen, og dere dro tilbake til 
 Der fikk dere en ny linje av sangen av en geitedame som dere tenkte nok var i familie
 med den døde gamle mannen.
 
+![Død geitemann](images/goatcorpse_mini.png)
+
 # Dag 132
 
 Deretter møtte dere den aller eldste geitemannen av dem alle, og han sendte dere på et siste
@@ -32,3 +34,5 @@ av skapninger som lignet på gremlingene.
 
 Da dere kom tilbake, fikk dere den siste sanglinjen av den eldste gamle geitemannen! Med
 det hadde dere fullført geitemennenes åtte oppdrag, og var klare for å gå videre!
+
+![Geitemonster](images/goatmonster_mini.png)

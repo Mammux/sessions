@@ -53,6 +53,8 @@ luksuriøse rom;
  - Fire kvinnelige tjenere med enkle masker.
  - En kvinnelig kriger med leopard-tatoveringer og et langt spyd.
 
+![Toppetasjen i gamle dager](images/spike_top_old_mini.png)
+
 De virket ganske overrasket over at dere dukket opp, og nervøse for hva som var årsaken til
 at dere var blitt tilkalt. Ute begynte været å bli dårligere. Dere fikk snakket litt med dem 
 (særlig presten), og fant ut dette:
@@ -66,6 +68,10 @@ at dere var blitt tilkalt. Ute begynte været å bli dårligere. Dere fikk snakk
 * De kjenner godt til maleriene i etasjen under, men ikke detaljene i historiene som fortelles.
 * Leopardmannen (som de også kaller Oppfinneren) døde for nesten 30 år siden og er begravet i gravkammeret.
 * Alle holder seg unna isbreen mot vest, pga. den illsinte frost-ånden som finnes der.
+
+![Prest](images/priest_1_mini.png) 
+![Prestinne](images/priestess_2_mini.png)
+![Kriger](images/warrior_mini.png)
   
 Dere holdt fortsatt på å spørre spørsmål, da en gruppe fuglemenn angrep dere. Dere nedkjempet
 først noen ganske ordinære soldater, men en "helt" dukket opp, så dere og fløy bort.
@@ -79,6 +85,9 @@ mange av dem med mye mer fargerike fjærpryder enn dere har sett før. Den stør
 på størrelse med en ogre. Han stoppet krigerne, og begynte å forhandle med dere. Han mislikte
 virkelig den lubne presten på toppen av spiken, men gikk med på å avslutte myrdingen da
 han skjønte at dere hadde en spesiell forbindelse til leopardmannen. 
+
+![Fuglenes høvding](images/bird_chief_1_mini.png)
+![Fuglekriger](images/bird_warrior_1_mini.png)
 
 Dere ble trukket tilbake til deres egen tid. Galem rakk såvidt å sette seg i leopardmannens
 stol i forhandlingsrommet.
