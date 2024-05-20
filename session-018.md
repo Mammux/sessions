@@ -10,7 +10,7 @@ Han hadde fortsatt med seg pilen som han hadde fanget pinneskipets ånd i, og ne
 
 Til slutt fortalt han at K'inich dessverre døde som en ung mann, tidlig i tyve-årene, i fjellene mot nord. Dere la merke til at kanskje det fineste treet i den lille klyngen rundt spiken, lente seg over styrmann Clarke sin lille hytte. Dere pratet såvidt med Clarke, men han var ivrig på å komme seg avgårde på en tur.
 
-![Styrmann Clarke](images/Clarke_scout.jpg)
+![Styrmann Clarke](images/Clarke_scout.png)
 
 ### Fra episke ogrer til mystiske lys
 
