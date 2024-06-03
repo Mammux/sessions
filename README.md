@@ -16,3 +16,4 @@
  - [Sekstende spilleomgang: hjelp, vi er på tidsreise (igjen)](./session-016.md)
  - [Syttende spilleomgang: en jeger i skyggene og en pinnebåt på land](./session-017.md)
  - [Attende spilleomgang: cliffhanger](./session-018.md)
+ - [Nittende spilleomgang: spenning i Dragefjellene, i fortid og nåtid](./session-019.md)
