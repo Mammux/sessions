@@ -36,6 +36,6 @@ Dere gikk litt rundt, det var ikke noe nytt i tårnet såvidt dere kunne se. Cha
 
 Dere lette litt rundt i dette området, og fant noen steder hvor elven som renner der var bygget inn. Etter å ha speidet litt opp mot fjellene uten å finne noe, gravde dere dere ned og laget et hull i "elvetaket" slik at dere kom dere inn til den underjordiske elven. Det var små stier langs elvebredden, og i vannet lå det beinrester. 
 
-Dere beveget dere oppover mot fjellene, og kom til slutt inn i en stor hule, opplyst av sollys filtrert gjennom snø og is mye lengre oppe. Det var en masse opplyste bygninger. Dere er helt på det laveste nivået.
+Dere beveget dere oppover mot fjellene, og etter å ha gått gjennom en metallport, kom dere til slutt inn i en stor hule, opplyst av sollys filtrert gjennom snø og is mye lengre oppe. Det var en masse opplyste bygninger. Dere er helt på det laveste nivået.
 
 ![Underjordisk by](images/underground_city.png)
