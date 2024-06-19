@@ -14,6 +14,8 @@ Dere var såvidt begynt å utforske den mørke byen inne i fjellene da dere oppd
 
 * Et par tjukke zombier av menneskeprester. 
 
+* En udød ogre, som Ilnan kastet ned på bakkeplanet med voldsom kraft.
+
 * En udød hobgoblin shaman.
 
 * En zombie bundet fast til en stor tromme, som fikk ordre om å sette i gang å tromme av en annen udød, og satte i gang en prosess hvor det kom lys i den øverste bygningen, og gitteret låste seg foran inngangen dere kom inn gjennom.

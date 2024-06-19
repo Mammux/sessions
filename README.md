@@ -18,3 +18,5 @@
  - [Attende spilleomgang: cliffhanger](./session-018.md)
  - [Nittende spilleomgang: spenning i Dragefjellene, i fortid og nåtid](./session-019.md)
  - [Tyvende spilleomgang: du må starte på gølvet](./session-020.md)
+ - [Tjueførste spilleomgang: gå i kjelleren](./session-021.md)
+ - 
