@@ -24,7 +24,6 @@ Det midterste siderommet virket som å være et rom med en serie kullfyrede ovne
 
 I det østligste siderommet, fant dere to store kar. I det ene lå det et skjelett, men i det andre så dere en innbandasjert skapning, som lå i en seig masse. På gulvet var det en masse store flasker, med litt slanter av en lignende seig masse. Dere rørte ved skapningen, som så ut som en mumie, og han begynte å bevege seg, ganske panisk. Dere fikk av ham noen av bandasjene så han kunne snakke, og det var en mann! 
 
-
 ![Tlacaelel](images/alchemist.png)
 
 Han var uttørket og forvirret, men dere fikk etterhvert ut av ham at han het Tlacaelel. Sammen med sin kamerat Itzcóatl (skjelettet i det andre karet), hadde han gjemt seg i denne hemmelige lab-en i forbindelse med et angrep av udøde. De var begge hardt skadet, og hadde lagt seg ned i en livbringende alkemisk væske.
@@ -41,7 +40,7 @@ De tre elementene som kom opp av gulvet var gamle feller som Tlacaelel sine fore
 
 Til slutt tok dere med dere Tlacaelel og begynte å klatre opp stigen igjen.
 
-
+*<a href="/">Tilbake til oversikten</a>*
 
 
 
