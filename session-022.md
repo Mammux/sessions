@@ -40,7 +40,6 @@ De tre elementene som kom opp av gulvet var gamle feller som Tlacaelel sine fore
 
 Til slutt tok dere med dere Tlacaelel og begynte å klatre opp stigen igjen.
 
-*<a href="/">Tilbake til oversikten</a>*
 
 
 
