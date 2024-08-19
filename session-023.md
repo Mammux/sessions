@@ -30,10 +30,12 @@ I samme etasje, men på andre siden av byen, fant dere først et rom med to kano
 
 I det neste rommet lå det tre skjelett på bakken med metallkuler festet til seg. Xavez løp bort og slo den ene, og da gikk den i luften! Alle metallkulene var bomber. Heldigvis eksploderte ikke de to andre skjelettene, og dere plyndret dem for bomber. 
 
+Dere kom dere ned gjennom det nå ganske ødelagte gulvet, og drepte de to udøde i etasjen under.
+
 * Etter at Xavez hadde drept enda en udød, fikk våpenet hans, en hammer som har Ahana sin sjel, en ny egenskap; det kan lyse kraftig som solen.
 
 ### Damen fra tunnellen 
 
-Dere gikk tilbake til første etasje og forsøkte igjen å åpne den store døren på nordsiden av broen. Dere brukte første kujern, men når dere klarte å få hull i døren, kastet dere inn bomber. Etter hvert oppdaget dere at døren var sperret av kroppene til to livløse zombie-hulker. Men der inne var også kvinnen fra krystall-tunnelen som de udøde hadde brukt for å komme seg inn i gravkammeret til Xipe Totec. Etter en hard kamp, hvor hun bl.a. kastet en ildkule på dere, gjorde hun omtrent det samme som hun gjorde der, hun løp opp trappen inne i rommet og fikk halve huset til å rase ned. Dere klarte såvidt å komme dere unna. 
+Dere gikk tilbake til første etasje og forsøkte igjen å åpne den store døren på nordsiden av broen. Dere brukte først kujern, men når dere klarte å få hull i døren, kastet dere inn bomber. Etter hvert oppdaget dere at døren var sperret av kroppene til to livløse zombie-hulker. Men der inne var også kvinnen fra krystall-tunnelen som de udøde hadde brukt for å komme seg inn i gravkammeret til Xipe Totec. Etter en hard kamp, hvor hun bl.a. kastet en ildkule på dere, gjorde hun omtrent det samme som hun gjorde der, hun løp opp trappen inne i rommet og fikk halve huset til å rase ned. Dere klarte såvidt å komme dere unna. 
 
 
