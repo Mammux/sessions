@@ -20,4 +20,5 @@
  - [Tyvende spilleomgang: du må starte på gølvet](./session-020.md)
  - [Tjueførste spilleomgang: gå i kjelleren](./session-021.md)
  - [Tjueandre spilleomgang: en kjeller under kjelleren?](./session-022.md)
-  
+ - [Tjuetredje spilleomgang: lytt til erfarne fjellfolk](./session-023.md)
+ - [Tjuefjerde spilleomgang: besøk i dronningens hoff](./session-024.md)
