@@ -22,7 +22,9 @@ Dere fant en sprekk i treet, som ledet inn i dets indre. Dere kom dere inn der, 
 
 ## Tilbake til nåtiden
 
-I deres egen tid dro dere tilbake til kjempetreet. Kjempegorillaen var ikke å se lenger, og dere klarte etter hvert å finne igjen sprekken i treet og presse dere inn. Rommet dere hadde sett i fortiden, var nå tydelig preget av tidens tann, men mange av gjenstandene var fortsatt der.
+Da dere dukket opp i kammeret på toppen av steinspiret igjen, var noe forandret seg. I sarkofagene lå det lik, skjeletter. Det var ingen ny stein med instruksjoner, og det var ikke noe tegn til lys.
+
+Dere dro tilbake til kjempetreet. Kjempegorillaen var ikke å se lenger, og dere klarte etter hvert å finne igjen sprekken i treet og presse dere inn. Rommet dere hadde sett i fortiden, var nå tydelig preget av tidens tann, men mange av gjenstandene var fortsatt der.
 
 Dere utforsket videre og fant flere rom; først et enkelt soverom, så noen rom som ga inntrykk av å være en slags utstillingsrom. På veggene var det risset inn detaljerte bilder av forskjellige utsikter, mens det i rommet var møbler og forskjellige gjenstander som hadde vært knust eller knukket, men var limt og reparert.
 
