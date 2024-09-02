@@ -89,4 +89,4 @@ Alle de udøde unntatt Nicté og hjelperen hennes virket å være i en type koma
 * Hun lovet å hjelpe dere med noen flygende udøde vesener slik at dere kan komme dere inn til nærmeste flygende skipet når det er innenfor rekkevidde. Hun ba dere komme tilbake til de udødes by når dere klare.
 * Hun holder på å gå tom for lik som er nyttige å vekke til live, så hun ønsker faktisk at menneskene skal overleve.
 
-Etter å ha forhandlet med dronningen, reiste dere tilbake mot spiken og geitemennene.
+Etter å ha forhandlet med dronningen, reiste dere tilbake mot steinspiret og geitemennene.
