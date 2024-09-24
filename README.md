@@ -23,3 +23,5 @@
  - [Tjuetredje spilleomgang: lytt til erfarne fjellfolk](./session-023.md)
  - [Tjuefjerde spilleomgang: besøk i dronningens hoff](./session-024.md)
  - [Tjuefemte spilleomgang: tilbake til røttene](./session-025.md)
+ - [Tjuesjette spilleomgang: åndenes makt](./session-026.md)
+  
