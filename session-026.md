@@ -1,6 +1,6 @@
 # Åndenes Makt
 
-Etter å ha funnet den merkelige skikkelesen nede blant røttene på kjempetreet, gikk dere opp mot overflaten igjen. På vei ut i sollyset igjen, så dere at det hadde samlet seg dusinvis av gorillaer som satt oppe i greinene.
+Etter å ha funnet den merkelige skikkelsen nede blant røttene på kjempetreet, gikk dere opp mot overflaten igjen. På vei ut i sollyset igjen, så dere at det hadde samlet seg dusinvis av gorillaer som satt oppe i greinene.
 
 De virket ikke agressive mot dere, og etter hvert skjønte dere at gorillaenes oppmerksomhet var rettet mot et punkt høyere oppe på stammen. Der dukket kvinneskikkelsen dere hadde vekket i dybet, leopardmannens partner, opp! Hun var blitt vesentlig større, virket det som, og beveget seg uten hinder gjennom greinene og røttene i det store treet.
 
