@@ -8,7 +8,7 @@ De virket ikke agressive mot dere, og etter hvert skjønte dere at gorillaenes o
 
 Hun begynte å snakke til dere, og hennes stemme var lav, men fylt med en eldgammel visdom. Hennes ansikt, halvt skjult blant røttene, bar preg av årtuseners erfaring. Hennes trekk minnet litt om leopardmannen, men med en eterisk skjønnhet som gjorde henne tidløs, og uten leopardtrekkene.
 
-    Jeg har sovet lenge... altfor lenge. Men nå kjenner jeg at noe nærmer seg. Noe som vi gamle aldri ønsket å se igjen. Denne verden... vår verden, står igjen på randen av ødeleggelse.
+> Jeg har sovet lenge... altfor lenge. Men nå kjenner jeg at noe nærmer seg. Noe som vi gamle aldri ønsket å se igjen. Denne verden... vår verden, står igjen på randen av ødeleggelse.
 
 Hennes øyne åpnet seg langsomt, og en svak glød fylte området rundt dere. Dere kjente dufter av blomster og nypløyd mark.
 
