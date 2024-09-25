@@ -14,43 +14,43 @@ Hennes øyne åpnet seg langsomt, og en svak glød fylte området rundt dere. De
 
 ![Ånden fra røttene](images/tree_spirit_2.png)
 
-    Jeg er en ånd fra den gamle sivilisasjonen, bundet til dette treet i en dvale som skulle bevare det som var. Men nå, etter så mange år, våkner jeg til en verden i fare. Jeg kan føle det – noe nærmer seg fra himmelen, en trussel som har kommet før og som nå vender tilbake. Min mann skjønte faren og ga sitt liv for å gjøre dere klare.
+> Jeg er en ånd fra den gamle sivilisasjonen, bundet til dette treet i en dvale som skulle bevare det som var. Men nå, etter så mange år, våkner jeg til en verden i fare. Jeg kan føle det – noe nærmer seg fra himmelen, en trussel som har kommet før og som nå vender tilbake. Min mann skjønte faren og ga sitt liv for å gjøre dere klare.
 
 Hun pekte en rot mot himmelen.
 
-    Disse skipene tilhører Chaneques, vesener fra fjerne stjerner, som har funnet en måte å reise mellom verdener. De søker denne planeten på nytt, drevet av grådighet etter krystaller skapt av den eldgamle dragen, en essens av planetens magi og livskraft. De kommer for å plyndre, og de vil ikke stoppe før alle tegn til liv er borte.
+> Disse skipene tilhører Chaneques, vesener fra fjerne stjerner, som har funnet en måte å reise mellom verdener. De søker denne planeten på nytt, drevet av grådighet etter krystaller skapt av den eldgamle dragen, en essens av planetens magi og livskraft. De kommer for å plyndre, og de vil ikke stoppe før alle tegn til liv er borte.
 
 Hennes uttrykk ble alvorlig, nesten sorgfullt.
 
-    Jeg føler en sjel som har blitt adskilt fra sitt kjøtt, fanget mellom liv og død, mellom tider, mellom legemer. Xavez... din kamp er ikke over. Du skal gjenfødes, ikke som den du var, men som en som kan bære denne byrden.
+> Jeg føler en sjel som har blitt adskilt fra sitt kjøtt, fanget mellom liv og død, mellom tider, mellom legemer. Xavez... din kamp er ikke over. Du skal gjenfødes, ikke som den du var, men som en som kan bære denne byrden.
 
 Med en svevende, rituell bevegelse førte hun Xavez sin svevende sjel mot kroppen til en gorilla som stod i nærheten. Dyret skalv et øyeblikk før det rettet seg opp og stirret på dere med en intens, kjent intelligens i øynene.
 
-    Din form er ny, men ditt hjerte er det samme. Du er nå gjenfødt, Xavez, i en kropp som vil gi deg styrke til å møte det som kommer. Men dette er bare begynnelsen.
+> Din form er ny, men ditt hjerte er det samme. Du er nå gjenfødt, Xavez, i en kropp som vil gi deg styrke til å møte det som kommer. Men dette er bare begynnelsen.
 
 Hun så på dere med en alvorlig, men håpefull glød i øynene.
 
-    For å stå imot Chaneques og beskytte denne verden, trenger dere mer enn bare deres egen kraft. Dere må vekke flere av åndene som har overlevd fra den gamle sivilisasjonen. De sover dypt, som jeg gjorde, men de kan vekkes og rekrutteres til deres side. Hver av dem bærer en del av den kraften som trengs for å stå imot denne trusselen.
+> For å stå imot Chaneques og beskytte denne verden, trenger dere mer enn bare deres egen kraft. Dere må vekke flere av åndene som har overlevd fra den gamle sivilisasjonen. De sover dypt, som jeg gjorde, men de kan vekkes og rekrutteres til deres side. Hver av dem bærer en del av den kraften som trengs for å stå imot denne trusselen.
 
 Hun strakk røttene sine dypere ned i jorden, og dere føler en forbindelse til verden under dere.
 
-    Jeg kan føle noen av dem gjennom jorden, gjennom røttene mine. Ay-Etharia, fra løvets skygge, har dere møtt. Han har vandret for lenge i skyggene, snakker ikke lengre vårt språk og har blitt en fremmed for oss. Men hans hjerte er godt.
+> Jeg kan føle noen av dem gjennom jorden, gjennom røttene mine. Ay-Etharia, fra løvets skygge, har dere møtt. Han har vandret for lenge i skyggene, snakker ikke lengre vårt språk og har blitt en fremmed for oss. Men hans hjerte er godt.
 
-    Ixkayotl, frostånden, tror jeg også dere har møtt. Hun dekket sin kjærlighet med et teppe av is til hans siste lys var slukket. Dere har staven som hun voktet så lenge.
+> Ixkayotl, frostånden, tror jeg også dere har møtt. Hun dekket sin kjærlighet med et teppe av is til hans siste lys var slukket. Dere har staven som hun voktet så lenge.
 
-    Yaku, dypets ånd, var min aller nærmeste, men hun ble revet bort fra sitt hjem. Hun har ødelagt sine lenker, men ikke sitt fengsel. Finn henne på havbunnen, mot nordøst.
+> Yaku, dypets ånd, var min aller nærmeste, men hun ble revet bort fra sitt hjem. Hun har ødelagt sine lenker, men ikke sitt fengsel. Finn henne på havbunnen, mot nordøst.
 
-    Tzitzimime, ånden for aske og ødeleggelse, sørger fortsatt over sin bror. Hun finnes langt mot vest, i fjellet som var hans hjem.
+> Tzitzimime, ånden for aske og ødeleggelse, sørger fortsatt over sin bror. Hun finnes langt mot vest, i fjellet som var hans hjem.
 
-    Tonatiuh, solens ånd, er nesten utenfor min sansevne, men jeg kjenner såvidt ekkoet fra hans nakne føttes steg i ørkenen mot sørvest.
+> Tonatiuh, solens ånd, er nesten utenfor min sansevne, men jeg kjenner såvidt ekkoet fra hans nakne føttes steg i ørkenen mot sørvest.
 
-    Xibalba, underverdenens ånd, er nå den nærmeste. I drømmene har vi hvisket til hverandre, men hans ord bærer en gnist av galskap og desperasjon. Jeg kan åpne veien ned til ham, men ikke beskytte dere.
+> Xibalba, underverdenens ånd, er nå den nærmeste. I drømmene har vi hvisket til hverandre, men hans ord bærer en gnist av galskap og desperasjon. Jeg kan åpne veien ned til ham, men ikke beskytte dere.
 
-    Søk disse stedene, og vekk åndene som fortsatt venter. De vil kunne hjelpe dere, men bare hvis dere viser dem respekt.
+> Søk disse stedene, og vekk åndene som fortsatt venter. De vil kunne hjelpe dere, men bare hvis dere viser dem respekt.
 
 Hun løftet hånden mot en stor nøtteaktig frukt på en busk.
 
-    Jeg har lite tid igjen i denne formen, men jeg kan binde min essens til denne frukten. Ta meg med dere, og en gang, når tiden er inne, når dere aller mest trenger min hjelp, kan dere vekke meg igjen for en kort stund. Bruk meg med klokskap, og få de andre åndene til å gjøre det samme. Hvis vi står sammen, kan vi kanskje beskytte vår verden mot det kommende mørket.
+> Jeg har lite tid igjen i denne formen, men jeg kan binde min essens til denne frukten. Ta meg med dere, og en gang, når tiden er inne, når dere aller mest trenger min hjelp, kan dere vekke meg igjen for en kort stund. Bruk meg med klokskap, og få de andre åndene til å gjøre det samme. Hvis vi står sammen, kan vi kanskje beskytte vår verden mot det kommende mørket.
 
 Med de siste ordene trakk hun seg tilbake i røttene, og hennes essens strømmet inn i frukten. Den begynte å gløde svakt, som om hun hvilte dypt inne i den, klar til å våkne når dere kaller på henne.
 
