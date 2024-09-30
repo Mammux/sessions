@@ -43,7 +43,7 @@ Dere lovet å bruke den klokt.
 
 Dere lovet igjen å bruke kreftene klokt.
 
-> En ed avlagt under solens fulle kraft er ikke å ta lett på. Sværger dere, her og nå, å bruke min gave til å beskytte og bevare balansen i verden, og aldri misbruke den til egoistiske formål?
+> En ed avlagt under solens fulle kraft bør man ikke ta lett på. Sverger dere, her og nå, å bruke min gave til å beskytte og bevare balansen i verden, og aldri misbruke den til egoistiske formål?
 
 Dere sverget alle det.
 
