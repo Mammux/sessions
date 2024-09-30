@@ -27,7 +27,7 @@ Endelig hadde dere tatt flygedyrene, og fikk åpnet døren inn til det sentrale 
 
 Han snakket til dere med en rungende stemme.
 
-> Dere som har våget gjennom mine prøvelser og stått i solens brennende lys, trå frem og gjør deres hensikt kjent. Hva søker dere her i mitt hellige tempel?
+> Dere som har våget mine prøvelser og stått i solens brennende lys, trå frem og gjør deres hensikt kjent. Hva søker dere her i mitt hellige tempel?
 
 Dere fortalte at dere søkte hjelp fra åndene for å møte trusselen fra Chaneques, de flygende skipene.
 
@@ -47,7 +47,7 @@ Dere lovet igjen å bruke kreftene klokt.
 
 Dere sverget alle det.
 
-> Da aksepterer jeg deres ed. Motta min velsignelse, Solens stråle, som vil styrke dere i møte med mørket. Bruk den klokt, og husk alltid at lyset må balanseres med rettferdighet og ydmykhet. Før dere drar, vit at reisen deres ikke ender her. Det finnes andre ånder som må vekkes. Søk deres visdom og styrke. Sammen kan dere kanskje forhindre den kommende katastrofen.
+> Da aksepterer jeg deres ed. Motta min velsignelse, solens eget lys, som vil styrke dere i møte med mørket. Bruk det klokt, og husk alltid at lyset må balanseres med rettferdighet og ydmykhet. Før dere drar, vit at reisen deres ikke ender her. Det finnes andre ånder som må vekkes. Søk deres visdom og styrke. Sammen kan dere kanskje forhindre den kommende katastrofen.
 
 Han forsvant, og dere oppdaget at dere hver hadde fått en stor medaljon med solstråler på. Dere skjønner at dere kan bruke dem en gang, enten hver for seg eller samlet. Jo flere som brukes sammen, jo større blir effekten.
 
