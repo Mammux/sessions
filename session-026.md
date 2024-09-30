@@ -1,4 +1,4 @@
-# Åndenes Makt
+# Tjuesjette spilleomgang: Åndenes Makt
 
 Etter å ha funnet den merkelige skikkelsen nede blant røttene på kjempetreet, gikk dere opp mot overflaten igjen. På vei ut i sollyset igjen, så dere at det hadde samlet seg dusinvis av gorillaer som satt oppe i greinene.
 
@@ -84,5 +84,5 @@ Deretter bestemte dere for å reise mot sørvest, ut i ørkenen. Der ville dere 
 
 ![Pyramiden](images/sun_pyramid.png)
 
-På vei nærmere, ble dere angrepet av en flokk med kjempebiller. Dere hadde akkurat overvunnet dem, da noen skikkelser dukket opp i pyramidens inngang!
+På vei nærmere, ble dere angrepet av en flokk med kjempebiller. Dere hadde akkurat overvunnet dem, da en stor skikkelse dukket opp i pyramidens inngang!
 

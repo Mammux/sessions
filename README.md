@@ -24,4 +24,6 @@
  - [Tjuefjerde spilleomgang: besøk i dronningens hoff](./session-024.md)
  - [Tjuefemte spilleomgang: tilbake til røttene](./session-025.md)
  - [Tjuesjette spilleomgang: åndenes makt](./session-026.md)
+ - [Tjuesyvende spilleomgang: fy farao](./session-027.md)
+  
   
