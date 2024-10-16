@@ -82,7 +82,11 @@ Oppe i lyset så dere at den mørke steinen så ut til å ta skade av sollys, s�
 
 Deretter bestemte dere for å reise mot sørvest, ut i ørkenen. Der ville dere se etter solens ånd. Det var ingen enkel tur, men ved å klatre opp i toppen av det største treet, fant dere en rute, og etter noen dager med strabaser, fant dere en pyramide ute i sanden.
 
+### Dag 138
+
 ![Pyramiden](images/sun_pyramid.png)
 
 På vei nærmere, ble dere angrepet av en flokk med kjempebiller. Dere hadde akkurat overvunnet dem, da en stor skikkelse dukket opp i pyramidens inngang!
+
+
 
