@@ -1,5 +1,7 @@
 # Tjueåttende spillomgang: Jenten i røyken
 
+På vei fra pyramiden, studerte Galem lysene på himmelen. Han anslo at de ville være framme hos dere mellom dag 158 og 163.
+
 ## Dag 140
 
 ![Caldera](images/caldera_fog.png)
