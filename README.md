@@ -26,8 +26,8 @@
  - [Tjuesjette spilleomgang: åndenes makt](./session-026.md)
  - [Tjuesyvende spilleomgang: fy farao](./session-027.md)
  - [Tjueåttende spillomgang: jenten i røyken](./session-028.md)
- - [Tjueniende spilleomgang: frozen, not stirred](./sessions-029.md)
- - [Treddevte spilleomgang: operasjon rent hav](./sessions-030.md)
+ - [Tjueniende spilleomgang: frozen, not stirred](./session-029.md)
+ - [Treddevte spilleomgang: operasjon rent hav](./session-030.md)
 
   
   
