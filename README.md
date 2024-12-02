@@ -28,6 +28,7 @@
  - [Tjueåttende spillomgang: jenten i røyken](./session-028.md)
  - [Tjueniende spilleomgang: frozen, not stirred](./session-029.md)
  - [Trettiende spilleomgang: operasjon rent hav](./session-030.md)
+ - [Trettiførste spillomgang: apokalypse nå?](./session-031.md)
 
   
   
