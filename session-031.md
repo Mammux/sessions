@@ -26,7 +26,7 @@ Men lykken ble avbrutt av at dere la merke til en fjern plystrelyd. Dere så opp
 
  Dere hørte også at noen kom løpende gjennom jungelen. Snart så alle at det var Xavez, som kom løpende mens han bar på en stor stein! Han ropte, litt gebrokkent:
 
-![alt text](images/xavez_mini.png)
+![Xavez](images/xavez_mini.png)
 
 > Ned onder vannet! 
 
@@ -42,7 +42,9 @@ Før dere dro, løftet en tydelig skadet Yaku hånden, og fra vannet steg en kry
 
 > Denne vannkulen inneholder en del av min essens. Den vil beskytte dere mot fiendens illusjoner og gi klarhet når alt virker tåkete.
 
-![alt text](images/burned_forest_widescreen_mini.png)
+Deretter forsvant hun, og vannet rundt henne, ned gjennom de store sprekkene i bakken. 
+
+![Landskap](images/burned_forest_widescreen_mini.png)
 
 
 
