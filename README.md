@@ -29,6 +29,8 @@
  - [Tjueniende spilleomgang: frozen, not stirred](./session-029.md)
  - [Trettiende spilleomgang: operasjon rent hav](./session-030.md)
  - [Trettiførste spillomgang: apokalypse nå?](./session-031.md)
+ - [Trettiandre spilleomgang: ned i hølet, vondt i hjerteroten](./session-032.md)
+  
 
   
   
