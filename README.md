@@ -32,9 +32,5 @@
  - [Trettiandre spilleomgang: ned i hølet, vondt i hjerteroten](./session-032.md)
  - [Trettitredje spilleomgang: Dan blir dødens herre](./session-033.md)
  - [Trettifjerde spilleomgang: stjernekrig](./session-034.md)
+ - [Trettifemte spilleomgang: open the pod bay doors](./session-035.md)
    
-  
-
-  
-  
-  
