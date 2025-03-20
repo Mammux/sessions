@@ -33,4 +33,5 @@
  - [Trettitredje spilleomgang: Dan blir dødens herre](./session-033.md)
  - [Trettifjerde spilleomgang: stjernekrig](./session-034.md)
  - [Trettifemte spilleomgang: open the pod bay doors](./session-035.md)
+ - [Trettisjette spilleomgang: fra skip til skip i nattehimmelen](./session-036.md)
    
