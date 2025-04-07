@@ -34,4 +34,4 @@
  - [Trettifjerde spilleomgang: stjernekrig](./session-034.md)
  - [Trettifemte spilleomgang: open the pod bay doors](./session-035.md)
  - [Trettisjette spilleomgang: fra skip til skip i nattehimmelen](./session-036.md)
-   
+ - [Trettiåttende spilleomgang: inn i Moderskipet](./session-037.md)
