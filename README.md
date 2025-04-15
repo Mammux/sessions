@@ -35,4 +35,4 @@
  - [Trettifemte spilleomgang: open the pod bay doors](./session-035.md)
  - [Trettisjette spilleomgang: fra skip til skip i nattehimmelen](./session-036.md)
  - [Trettisyvende spilleomgang: inn i Moderskipet](./session-037.md)
- - [Trettiåttende spilleomgang: gåtefulle gobliner](./sessions-038.md)
+ - [Trettiåttende spilleomgang: gåtefulle gobliner](./session-038.md)
