@@ -8,7 +8,11 @@ På det laveste dekket i skipet fant dere også en ånd som var fanget i en glas
 
 ![Fiskeånd](images/engraved_glass_ball.png)
 
-Dere så i kikkerten på dekket at de andre "småskipene" styrte mot det store moderskipet. Dere gjorde det samme, men i lavere hastighet. Da dere nærmet dere, så dere at de andre småskipene hadde forankret til moderskipet. Dere nærmet dere på samme måte, men da dere var kommet helt inntil, ødela dere glasskulen på det laveste dekket, slik at skipet begynte å falle mot havoverflaten langt nede. Dere kom dere over til moderskipet sammen med flygeskjelettene dere. 
+Dere så i kikkerten på dekket at de andre "småskipene" styrte mot det store moderskipet. Dere gjorde det samme, men i lavere hastighet, slik at dere fikk tid til å ta en lengre hvil.
+
+## Dag 148
+
+ Da dere nærmet dere, så dere at de andre småskipene hadde forankret til moderskipet. Dere nærmet dere på samme måte, men da dere var kommet helt inntil, ødela dere glasskulen på det laveste dekket, slik at skipet begynte å falle mot havoverflaten langt nede. Dere kom dere over til moderskipet sammen med flygeskjelettene dere. 
 
 ## Titanic?
 
