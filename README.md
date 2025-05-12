@@ -37,3 +37,4 @@
  - [Trettisyvende spilleomgang: inn i Moderskipet](./session-037.md)
  - [Trettiåttende spilleomgang: gåtefulle gobliner](./session-038.md)
  - [Trettiniende spilleomgang: Ilnan blir frelst](./session-039.md)
+ - [Førtiende spilleomgang: Mosh pit](./session-040.md)
