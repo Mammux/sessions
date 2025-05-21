@@ -8,7 +8,7 @@ Etter at åndene var rømt, vippet hele skipet noen grader mot babord, og dere h
 
 Sjefstrollet løp bort til dere og kom med et brøl som satte skrekken i flere av dere. De andre trollene plasserte seg også rundt dere. Uxmal fikk plassert en vegg av flammer gjennom alle trollene, og Ilnan plasserte en askesky (kreftene fra Tzitzimime). Det hjalp godt mot hovedtrollet, som var sårbar for ild. Men de andre trollene drev og regenererte opp igjen hver gang dere skadet dem. Dere skjønte at dere trengte syre for å hindre dem i å helbrede seg. 
 
-Dere ble slått ned flere ganger, men kom dere opp igjen hver gang. En gang skjedde det med hjelp fra Kenai, ånden dere frigjorde fra det første skipet dere bordet. Uxmal kunne gi litt av sin helse til Galem, så han kom til bevissthet igjen.
+Dere ble slått ned flere ganger, men kom dere opp igjen hver gang. En gang skjedde det med hjelp fra Kenai, ånden dere frigjorde fra det første skipet dere bordet. Uxmal kunne gi litt av sin helse til Dan, så han kom til bevissthet igjen.
 
 En liten goblin forsøkte å stikke Dan mens han lå nede, men ombestemte seg og stjal en kanonkule fra et dødt troll i stedet. Det kom også en goblin som hadde mektig gudemagi. Han klarte å forvirre Dan så han begynte å angripe dere andre, men Galem ga ham en klessing så han ble seg selv igjen. Uxmal tilkalte en ild-drake, som hjalp til å drepe sjefstrollet, men de andre trollene var fortsatt en stor trussel. I tillegg til å bite dere, og kutte dere opp med klørne sine, kunne de også kaste kanonkuler på dere med en voldsom kraft.
 
