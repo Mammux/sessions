@@ -1,6 +1,6 @@
 # Fengselsfugl tar til vingene
 
-Dere tok en hvil i rommet med souvenirene. 
+Dere overnattet i rommet med souvenirene. 
 Deretter gikk dere gjennom alle goblin- og
 trollhusene. I et lite tempel fant dere en 
 trapp ned til et fengsel. I et rustent bur
