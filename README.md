@@ -38,3 +38,4 @@
  - [Trettiåttende spilleomgang: gåtefulle gobliner](./session-038.md)
  - [Trettiniende spilleomgang: Ilnan blir frelst](./session-039.md)
  - [Førtiende spilleomgang: Mosh pit](./session-040.md)
+ - [Førtiførste spilleomgang: En fengselsfugl](./session-041.md)
