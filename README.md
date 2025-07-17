@@ -40,3 +40,5 @@
  - [Førtiende spilleomgang: Mosh pit](./session-040.md)
  - [Førtiførste spilleomgang: En fengselsfugl](./session-041.md)
  - [Førtiandre spilleomgang: Kapteinen går ned med skipet](./session-042.md)
+ - [Førtitredje spilleomgang: Navigare Necesse Est](./session-043.md)
+  
