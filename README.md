@@ -41,4 +41,6 @@
  - [Førtiførste spilleomgang: En fengselsfugl](./session-041.md)
  - [Førtiandre spilleomgang: Kapteinen går ned med skipet](./session-042.md)
  - [Førtitredje spilleomgang: Navigare Necesse Est](./session-043.md)
+ - [Førtifjerde spilleomgang: Motortrøbbel](./session-044.md)
+ - [Førtifemte spilleomgang: Inter Homines et Machinas](./session-045.md)
   
