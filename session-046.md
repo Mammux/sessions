@@ -45,15 +45,15 @@ Også der var det ødeleggelser, men gjenoppbyggingen begynte raskt. Galem og Da
 
 Etter et halvt år kom Krambal ut av treet, han takket dere for hjelpen. Uxmal og Ilnan valgte, etter å ha tatt farvel med sine venner, å følge Krambal. Han tok kontroll over skipet og leder dere til et fjernt sted:
 
-<i>Skipet glir over terskelen mellom verdener som en rot som finner vann. Luften blir straks kjøligere, renere. Det lukter fuktig jord, bartrær og noe søtt — som blomster som bare blomstrer én gang hvert århundre.
+<i>Skipet glir over terskelen mellom verdener som en rot som finner vann. Luften blir straks kjøligere, renere. Det lukter fuktig jord, bartrær og noe søtt — som blomster som bare blomstrer én gang hvert århundre.</i>
 
-Treet sukker tungt, nesten lykkelig, idet det lander, og røttene finner næring i et land det kjenner igjen.
+<i>Treet sukker tungt, nesten lykkelig, idet det lander, og røttene finner næring i et land det kjenner igjen.</i>
 
-Under dere breier et grønt kontinent seg ut, dekket av eldgamle skoger, tåkete daler og glitrende innsjøer. Overalt stiger massive trær mot skyene — noen med plattformer og broer av levende vinranker. Druidiske steinsirkler lyser svakt i dypet.
+<i>Under dere breier et grønt kontinent seg ut, dekket av eldgamle skoger, tåkete daler og glitrende innsjøer. Overalt stiger massive trær mot skyene — noen med plattformer og broer av levende vinranker. Druidiske steinsirkler lyser svakt i dypet.</i>
 
-Fugler i alle farger danser mellom grenene. Og når skipet lander, strømmer det ut små dyr som om de har ventet i generasjoner. De andre to druidene kommer ut fra treet, søvndrukne men friske. En eldgammel ugle svever sakte ned med tunge vingeslag, og snakker:
+<i>Fugler i alle farger danser mellom grenene. Og når skipet lander, strømmer det ut små dyr som om de har ventet i generasjoner. De andre to druidene kommer ut fra treet, søvndrukne men friske. En eldgammel ugle svever sakte ned med tunge vingeslag, og snakker:</i>
 
-"Dere har kommet tilbake. Vi trodde dere var tapt for alltid."</i>
+<i>"Dere har kommet tilbake. Vi trodde dere var tapt for alltid."</i>
 
 <h1><center>THE END</center></h1>
 
