@@ -43,4 +43,5 @@
  - [Førtitredje spilleomgang: Navigare Necesse Est](./session-043.md)
  - [Førtifjerde spilleomgang: Motortrøbbel](./session-044.md)
  - [Førtifemte spilleomgang: Inter Homines et Machinas](./session-045.md)
+ - [Førtisjette spilleomgang: Rockestjerner](./session-046.md)
   
